@@ -1,8 +1,11 @@
 # MINEAGRO S.A. 🚜💎
 
-![MINEAGRO Logo](https://via.placeholder.com/150) > **Innovación Sostenible: Uniendo la Riqueza de la Tierra con el Futuro de la Agropecuaria.**
+<img width="1408" height="768" alt="Gemini_Generated_Image_nev88vnev88vnev8" src="https://github.com/user-attachments/assets/cf3746a1-a2c0-499d-b9aa-5a8c4ac6be9c" />
 
-MINEAGRO es una empresa empresarial moderna y de visión futurista que integra de manera estratégica dos de los pilares económicos más importantes: la **extracción minera de alta precisión** y la **producción agropecuaria de vanguardia**. 
+
+**Innovación Sostenible: Uniendo la Riqueza de la Tierra con el Futuro de la Agropecuaria.**
+
+MINEAGRO es una empresa moderna y de visión futurista que integra de manera estratégica dos de los pilares económicos más importantes: la **extracción minera de alta precisión** y la **producción agropecuaria de vanguardia**. 
 
 Nuestra filosofía operativa se basa en la optimización territorial y la sostenibilidad: aprovechamos la superficie de nuestras propiedades mineras para el desarrollo de complejos agropecuarios de alta eficiencia, especializados en el **criadero y engorde de ganado bovino**.
 
